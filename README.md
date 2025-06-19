@@ -5,5 +5,5 @@ ForthoseresidinginMaharashtra,weofferspecializedDigitalMarketingCoursesInPune.Ou
 Withafocusonreal-worldcasestudiesandcurrenttrends,ourPune-basedcoursesaredesignedtohelpyoubuildastrongportfolioandconnectwithathrivinglocalprofessionalnetwork.
 DiscoverthebestdigitalmarketingtrainingrighthereinPuneandtakethefirststeptowardsarewardingcareer.
 Visit Site - https://infinitegraphixads.com/digital-marketing-course/
-![image](https://github.com/user-attachments/assets/a4b043e8-0871-475c-a793-f2ff4fd5f800)
+
 
